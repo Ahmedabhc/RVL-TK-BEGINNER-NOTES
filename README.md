@@ -9,7 +9,7 @@ They can build droids, crash the Droid, break the Droid, and it's just a playgro
 GRADING SYSTEM:
 ![offer](https://github.com/Ahmedabhc/RVL-TK-BEGINNER-NOTES/assets/133792151/7537660f-894f-4ccf-bafb-dfef3dbffd31)
 
-The division of the levels of those 15 grades and how droids fit in on in these 15 grades. That will all sit in teams C land. ###READ WHAT REVEL TEK WANTS?
+The division of the levels of those 15 grades and how droids fit in on in these 15 grades. That will all sit in teams C land, with the time you are advancing in grades as well as responsibilities are increased. ###READ WHAT REVEL TEK WANTS?
 
 DROID:
 
